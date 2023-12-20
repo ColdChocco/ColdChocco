@@ -1,4 +1,4 @@
-### Hi there 👋
+### Guys I'm in the Octo Ring now :)
 
 <!--
 **ColdChocco/ColdChocco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
